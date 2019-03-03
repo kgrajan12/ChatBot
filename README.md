@@ -17,5 +17,7 @@ Like, Comment, Share.
 Support Our Channel
 
 Follow on Instagram: https://www.instagram.com/teknikgg
+
 Follow on Twitter: https://www.twitter.com/teknikgg
+
 Follow on Facebook: https://www.facebook.com/teknikgg
